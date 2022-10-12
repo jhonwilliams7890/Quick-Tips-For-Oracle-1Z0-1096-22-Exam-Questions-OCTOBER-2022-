@@ -1,0 +1,1 @@
+# Quick-Tips-For-Oracle-1Z0-1096-22-Exam-Questions-OCTOBER-2022-
